@@ -6,8 +6,8 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on pizza
-- 🌱 I’m currently learning pizza
+- 🌱 I’m currently learning how to survive
 - 👯 I’m looking to collaborate on boats
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...>
+- 🤔 I’m looking for help with life
+- 💬 Ask me about my bread
+- 📫 How to reach me: you don't
